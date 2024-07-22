@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zhongyu-wzy
+- 👋 Hi, I’m Zhongyu Wang
 - 📫 How to reach me zhongyu.wzy.cn@hotmail.com
 - ⚡ Fun fact: contact me
 
